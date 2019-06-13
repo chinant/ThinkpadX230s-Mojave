@@ -1,0 +1,1 @@
+# ThinkpadX230s-Mojave
